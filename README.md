@@ -1,2 +1,3 @@
 # juanceron
-punto taller 1
+la iamgen es de:
+https://pixabay.com/users/wild0ne-920941/
